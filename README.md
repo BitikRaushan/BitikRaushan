@@ -1,4 +1,4 @@
-# 👋 Hi, I'm **Raushan**
+# 👋 Hi, I'm **Bitik Raushan**
 
 <div align="center">
 
